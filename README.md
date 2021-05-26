@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @1justjosh
+- 👀 I’m interested in game development and programming
+- 🌱 I’m currently learning computer science 
+- 💞️ I’m looking to collaborate on easy games 
+- 📫 How to reach me jjboy2245@gmail.com
+- 🙏 I am aswell new to this website so I will appreciate any help from anyone
